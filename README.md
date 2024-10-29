@@ -131,4 +131,6 @@ X: [@derricklee918](https://x.com/derricklee918)
 
 Discord: [@solGuru](https://discordapp.com/users/352387576017190913)
 
+Medium: [@derricklee918]([https://medium.com/@derricklee918])
+
 Thanks.
